@@ -5,6 +5,6 @@
 - 🌱 I’m currently learning JAVA and PYTHON
 - 👯 I’m looking to collaborate on projects
 - 🤔 I’m looking for help with object-oriented programming
-- 📫 How to reach me: via my email acdwinwin@gmail.com
+- 📫 How to reach me: via my email acdwinwin@gmail.com or my fb account which is linked in my profile here
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I'm very extroverted hehehe
